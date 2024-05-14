@@ -1,2 +1,0 @@
-Nama: Isri Amirul Haq
-NIM: 235150600111011
